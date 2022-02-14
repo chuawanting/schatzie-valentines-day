@@ -10,3 +10,5 @@ Happy Valentines Day!
 ![Sunbathing](https://user-images.githubusercontent.com/98693721/153826808-d5e39515-1978-4571-98a2-9d9a6cb13b05.jpg)
 
 ![Getting Rich in Ang Pao](https://user-images.githubusercontent.com/98693721/153828308-25363d6e-4648-4bbf-9bb8-616f4324db6c.jpg)
+![Le Favourite Singaporean Drink](https://user-images.githubusercontent.com/98693721/153829467-80328fd3-9b52-4ed5-aa58-32d245b579cc.jpeg)
+![Mala time](https://user-images.githubusercontent.com/98693721/153829478-1dfb2d36-b75b-405a-a6e9-06cb0859aab3.jpeg)
