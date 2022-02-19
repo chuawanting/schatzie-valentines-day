@@ -1,6 +1,7 @@
 # schatzie-valentines-day
 Happy Valentines Day!
 ![5 Human   1 Cream Sausage](https://user-images.githubusercontent.com/98693721/153826549-84b7aa00-ca7b-498b-8def-3137f6cbccb3.jpg)
+![Gazing at Bamboos](https://user-images.githubusercontent.com/98693721/154807018-88b2f8ca-16c1-4f4e-9251-bf32016cddba.jpeg)
 ![Flexing-umglamorous birthday power posing](https://user-images.githubusercontent.com/98693721/153826554-e0bd0041-2afe-4ab7-a482-be3cb3797af9.jpg)
 ![Getting Rich in Ang Pao](https://user-images.githubusercontent.com/9
 ![Night Safari](https://user-images.githubusercontent.com/98693721/153826793-244949c9-0738-4657-8ede-8503993f6c25.jpg)
